@@ -7,6 +7,7 @@
 -ƪ(˘⌣˘)ʃ  I’m looking to collaborate on: Video game modding, Website building, and making short programs, I'm willing to try a wide variety of things, as long as I can add it
 -   to my resume. 
 -  （*＾-＾*）How to reach me: For professional inquiries please contact me at:  Kaikitching9@gmail.com
+-   Or look at my website at: (*FIXME: Add website*)
 
 <!---
 KaiKitKobold/KaiKitKobold is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
